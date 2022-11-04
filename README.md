@@ -1,2 +1,5 @@
-# rent-please-landlord-sim-cheats-codes-gems-hacks
-Rent Please Landlord Sim Codes and Cheats 100k free gems Hacks guide
+# Rent Please Landlord Sim Codes and Cheats 100k free gems Hacks guide
+
+Rent Please Landlord Sim Codes and Cheats 100k free gems Hacks guide - Finally, you can use the products in the store to improve the price and popularity. You can get these items from Kairosoft's staple pumpkin store or customer gifts that are restocked every month. Each of these results is represented by an icon. When you go to the "Use Items" screen, you can view this icon: X means no effect, triangle is meh, circle is ok, and two circles are great. Using items on facilities can produce different store popularity and price results, but using items will never lose statistical data. Each item can produce one of four effects: no effect, bad, good and good. These hearts mean that the facility is compatible with the facility you are trying to place. rent please landlord sim redemption code If you want to quickly review the compatibility combinations you have found, you can go to Info
+
+[see here](https://fengmod.top/rent-please-landlord-sim/)
